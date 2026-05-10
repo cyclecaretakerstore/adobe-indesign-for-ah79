@@ -1,4 +1,4 @@
-
+exclusive Panel for Adobe InDesign for macOS - AI-assisted design and content-aware fill offers the most advanced Adobe InDesign for macOS panel, with AI-assisted design and
 
 
 
